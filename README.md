@@ -24,4 +24,4 @@
 
 
 ## Можете ознакомиться с презентацией
-https://1drv.ms/p/c/3fb6aa97da445fa8/IQBBqiHfWQWwTYmGCK34XkGGAamU4Rx6crtVZvfqGw2fe_8?e=YcnRDk
+[Презентация](https://1drv.ms/p/c/3fb6aa97da445fa8/IQBBqiHfWQWwTYmGCK34XkGGAamU4Rx6crtVZvfqGw2fe_8?e=YcnRDk)
